@@ -3,3 +3,5 @@
 
 
 cosas que ando haciendo de estadística
+
+neta espero que no veas esto nunca
